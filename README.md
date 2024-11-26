@@ -1,1 +1,1 @@
-# Majo, Andrea y Almu
+# María José García
